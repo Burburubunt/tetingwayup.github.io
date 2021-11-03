@@ -1,1 +1,0 @@
-# tetingwayup.github.io
